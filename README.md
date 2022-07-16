@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dangodda
-- 👀 I’m interested in defeating the scourge of capitalism with capitalism
+- 👀 I’m interested in defeating the scourge
 - 🌱 I’m currently learning much
 - 💞️ I’m looking to collaborate on all the apps and services Tetralabs will provide
 - 📫 How to reach me: discord
